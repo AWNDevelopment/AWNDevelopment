@@ -49,7 +49,7 @@
 
 <p align="left">  
 - 💼 I'm looking for collaborations - I am available for freelance work.<br>  
-- 📩 Reach me directly on Discord: https://discord.com/users/awnxz
+- 📩 Reach me directly on Discord: https://discord.com/users/awnzx
 </p>
 
 ###
